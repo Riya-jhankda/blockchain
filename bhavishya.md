@@ -1,1 +1,8 @@
 Link for the short to to see the [step-wise process](https://www.instagram.com/reel/ClC1FqsjFgb/?igshid=NDk5N2NlZjQ=)
+[remote jobs](remoteok.com)
+[remote jobs](justremote.co)
+[remote jobs](angel.co)
+[remote jobs](weworkremotely.com)
+[remote jobs](hired.com)
+[remote jobs](flexjobs.com)
+[remote jobs](jobspresso.co)
