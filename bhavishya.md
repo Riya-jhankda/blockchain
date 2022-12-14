@@ -1,15 +1,17 @@
 Link for the short to to see the [step-wise process](https://www.instagram.com/reel/ClC1FqsjFgb/?igshid=NDk5N2NlZjQ=)
 
-[remote jobs](remoteok.com)
+[remote jobs1](remoteok.com)
 
-[remote jobs](justremote.co)
+[remote jobs2](justremote.co)
 
-[remote jobs](angel.co)
+[remote jobs3](angel.co)
 
-[remote jobs](weworkremotely.com)
+[remote jobs4](weworkremotely.com)
 
-[remote jobs](hired.com)
+[remote jobs5](hired.com)
 
-[remote jobs](flexjobs.com)
+[remote jobs6](flexjobs.com)
 
-[remote jobs](jobspresso.co)
+[remote jobs7](jobspresso.co)
+
+[DSA](https://devrahul.in/2022/11/roadmap-of-dsa-in-one-twenty-days/)
