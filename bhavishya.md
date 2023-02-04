@@ -15,3 +15,4 @@ Link for the short to to see the [step-wise process](https://www.instagram.com/r
 [remote jobs7](jobspresso.co)
 
 [DSA](https://devrahul.in/2022/11/roadmap-of-dsa-in-one-twenty-days/)
+life is not hard ,u are just making it more in future
